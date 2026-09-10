@@ -1,4 +1,6 @@
 This is for Taiwan Chang Gung University homeworks  
+we are hiring junior contributers who enthusiastic about coding !!!!!!  
+
 喔愛 什麼是愛  
 你看我的眼神怎麼這麼可愛  
 若是講你的心親像大海  
